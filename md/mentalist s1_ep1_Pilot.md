@@ -1,6 +1,6 @@
 The Mentalist s01e01 Episode Script
 
-Read more: https://www.springfieldspringfield.co.uk/view_episode_scripts.php?tv-show=the-mentalist&episode=s01e01
+
 
 Pilot 
 
