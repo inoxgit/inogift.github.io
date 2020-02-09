@@ -1,11 +1,21 @@
 ### Red Hair and Silver TapeThe Mentalist season1- Episode 02  
 ## Red Hair and Silver Tape
 
+#### Character
+
+#### Guard
 Oh, boy, am I glad to see you guys.
+
 We are sorely ill-prepared for this kind of deal.
+
 Quail hunter's dog found her this morning about 5:30.
+
 Wasn't meant to be hunting quail, but he was.
-Do we know who she is? No.
+
+Do we know who she is?
+No.
+
+#### Jho
 Looks familiar though, so I'm guessing local.
 People sure look different when they're dead though, don't they? That wound doesn't look fatal.
 There's no ligature marks on the neck, so she wasn't strangled or hung.
